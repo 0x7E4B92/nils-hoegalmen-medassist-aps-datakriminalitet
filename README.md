@@ -77,7 +77,7 @@ Som adm. direktør og dataansvarlig for MedAssist ApS kan **Nils Høgalmen** ikk
 2. **Aktiv afvisning** — Da han fik forelagt dokumentationen afviste han den på 10 minutter uden undersøgelse
 3. **Bevisforvanskning** — Koordineret hjemmesideændring på to klinikker beviser organisatorisk bevidsthed og forsøg på skjul
 
-Epilog: Den Følelsesløse Prins
+## Epilog: Den Følelsesløse Prins
 Efter at have dokumenteret Nils Høgalmens 10-minutters afvisning af uigendrivelige beviser og hans organisations efterfølgende forsøg på at omskrive virkeligheden, står vi tilbage med en krystalklar indsigt: Dette er ikke et tilfælde af dårlig dømmekraft. Det er en forretningsmodel.
 
 Og den præcise, kliniske diagnose af denne forretningsmodel blev skrevet i 1835 af Danmarks fremmeste systemrevisor, H.C. Andersen. Diagnosen hedder "Prinsessen på Ærten". Det er ikke et eventyr. Det er en teknisk manual for bevidst følelsesløshed.
