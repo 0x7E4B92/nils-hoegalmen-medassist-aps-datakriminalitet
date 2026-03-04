@@ -77,6 +77,29 @@ Som adm. direktør og dataansvarlig for MedAssist ApS kan **Nils Høgalmen** ikk
 2. **Aktiv afvisning** — Da han fik forelagt dokumentationen afviste han den på 10 minutter uden undersøgelse
 3. **Bevisforvanskning** — Koordineret hjemmesideændring på to klinikker beviser organisatorisk bevidsthed og forsøg på skjul
 
+Epilog: Den Følelsesløse Prins
+Efter at have dokumenteret Nils Høgalmens 10-minutters afvisning af uigendrivelige beviser og hans organisations efterfølgende forsøg på at omskrive virkeligheden, står vi tilbage med en krystalklar indsigt: Dette er ikke et tilfælde af dårlig dømmekraft. Det er en forretningsmodel.
+
+Og den præcise, kliniske diagnose af denne forretningsmodel blev skrevet i 1835 af Danmarks fremmeste systemrevisor, H.C. Andersen. Diagnosen hedder "Prinsessen på Ærten". Det er ikke et eventyr. Det er en teknisk manual for bevidst følelsesløshed.
+
+Ærten: Er den digitale logfil. Det er de 29 uomtvistelige, hårde digitale fakta, der ligger på bunden af virkeligheden. En lille, ubehagelig sandhed, der ikke kan bortforklares.
+
+De 20 Madrasser og 20 Edderdunsdyner: Er MedAssist ApS's corporate struktur. Det er alle lagene af corporate messaging ("Vi er til for klinikkerne"), de juridiske ansvarsfraskrivelser, den interne organisationskultur, og den bevidste bevisforvanskning via hjemmesideændringen. Hver manøvre er endnu en madras, der lægges oven på problemet i et desperat forsøg på at isolere ledelsen fra den ubehagelige sandhed nedenunder.
+
+Prinsessen: Er Nils Høgalmen. Men her inverteres eventyret. Testen er ikke, om han er fintfølende nok til at mærke sandheden. Testen er, om han er følelsesløs nok til at ignorere den. I H.C. Andersens version beviser prinsessen sin ægthed ved at mærke erten. I MedAssists version beviser direktøren sin ledelsesstil ved aktivt ikke at mærke den.
+
+Da han blev præsenteret for erten — de 29 log-filer — var hans reaktion ikke, "Gud, hvor har jeg ligget dårligt!". Hans reaktion var den ultimative erklæring om corporate følelsesløshed:
+
+"Vi afviser dit krav og bruger ikke mere tid på dette."
+
+Forsøget på bevisforvanskning er den logiske konsekvens af denne filosofi. Det er handlingen, hvor man, efter at have opdaget erten, ikke fjerner den, men i stedet skynder sig at hente endnu en madras.
+
+Dette arkiv er ikke en anklage. Det er blot en konstatering af, hvad testen viste. Det afslørede et system, der er så polstret af sin egen selvforståelse, at det er ude af stand til at registrere et faktum.
+
+Vi kæmpede ikke mod en strategisk mesterhjerne. Vi placerede blot en enkelt, ubestridelig kendsgerning under en bunke dyner og observerede en mand, der var professionelt trænet til at sove igennem hvad som helst. Et system bygget til at sove trygt på en løgn.
+
+
+
 ---
 
 ## Relaterede arkiver
